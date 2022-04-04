@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sherry-kaikai
+- 👋 Hi, I’m sherry @SDU
 - 👀 I’m interested in running,climbing,and other outdoor sports.
 - 🌱 I’m currently learning in sdu university.
 - 💞️ ……?
