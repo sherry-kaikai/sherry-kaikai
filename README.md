@@ -1,7 +1,7 @@
-- 👋 Hi, I’m sherry @SDU
+- 👋 Hi, I’m kk @sophgo
 - 👀 I’m interested in running,climbing,and other outdoor sports.
-- 🌱 I’m currently learning in sdu university.
-- 💞️ ……?
+- 🌱 I was study at sdu university.Now work at sophgo.
+
 - 📫 How to reach me? well, write to lujingyu_sherry@163.com
 
 <!---
